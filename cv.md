@@ -1,6 +1,5 @@
 # Daria Nebogina
 
----
 ### Contact information
 + **Phone:** +79507576306
 + **E-mail:** dasha.nebogina@mail.ru
